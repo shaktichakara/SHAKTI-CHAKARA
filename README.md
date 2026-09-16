@@ -1,1 +1,1 @@
-# Shakti Chakra
+# SHAKTI-CHAKARA
